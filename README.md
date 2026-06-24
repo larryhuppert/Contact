@@ -1,5 +1,5 @@
 # Contact
-Contact Info  
+**Contact Info**  
 Larry Huppert  
 📲 Mobile: +1 508 561 8140  
 🏠 Home: +1 978 443 9160  
